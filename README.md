@@ -1,5 +1,5 @@
 # ABOUT_ME
-THIS REPO IS ALL ABOUT MY RESUME.
+THIS IS ALL ABOUT MY ME.
 # 👩‍💻 Boga Sneha Sri
 
 📍 Hyderabad  
